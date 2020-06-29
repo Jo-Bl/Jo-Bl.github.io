@@ -10,3 +10,7 @@ skandinavischer Sicht. Orm ist der juengste Sohn des reichen schonischen Bauern 
 * weitgereist
 * weise
 * angesehen und anerkannt
+
+Roede Orm sagt:
+> Wir vom Geschlecht der Weitgreifenden geben 
+> unseren Freunden gute Geschenke oder gar keine.
